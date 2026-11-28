@@ -1,3 +1,4 @@
+<!---hi--->
 <p align="center">
 would like to : cuddlehug random people ( or even me ) , practicing color theory , playing pony town everyday , friendly people , afk
 <p align="center">
@@ -16,3 +17,4 @@ turned off : friend request , gift item , invite to party , send whisper
 <sub>this page was updated: Saturday 28  November 2026<sub>
 <p align="center">
 (＾ω＾)
+<!---bye--->
