@@ -1,6 +1,6 @@
 <!---hi--->
 <p align="center">
-would like to : cuddlehug random people ( or even me ) , practicing color theory , playing pony town everyday , friendly people , afk listening to music 
+would like to : cuddlehug random people ( or even me ) , practicing color theory , playing pony town everyday , friendly people , afk , listening to music 
 <p align="center">
   would not like to : talk too much (i rarely talk) , having bad grammar (little bit) , mistakes , rude people , corny people
 <p align="center">
