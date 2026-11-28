@@ -1,5 +1,5 @@
 <p align="center">
-would like to : cuddlehug random people ( or even me ) , practicing color theory , playing pony town everyday , friendly people
+would like to : cuddlehug random people ( or even me ) , practicing color theory , playing pony town everyday , friendly people , Afk
 <p align="center">
   would not like to : talk too much (i rarely talk) , having bad grammar (little bit) , mistakes , rude people , corny people
 <p align="center">
