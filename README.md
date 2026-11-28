@@ -1,10 +1,10 @@
 <!---hi--->
 <p align="center">
-would like to : cuddlehug random people ( or even me ) , practicing color theory , playing pony town everyday , friendly people , afk , listening to music 
+would like to : practicing color theory , playing pony town everyday , friendly people , afk , listening to music 
 <p align="center">
   would not like to : talk too much (i rarely talk) , having bad grammar (little bit) , mistakes , rude people , corny people
 <p align="center">
-  sometimes would like to : interact with people , asking questions , doing stuff
+  sometimes would like to : interact with people , asking questions , doing stuff , cuddlehug random people ( or even me )
 <p align="center">
 turned off : friend request , gift item , invite to party , send whisper
 <p align="center">
